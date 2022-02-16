@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @XdBanana9040
+- 👀 I’m interested in beating the school block system
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on beating the school system
+- 📫 How to reach me dillydilly1892@gmail.com
